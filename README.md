@@ -1,3 +1,3 @@
 # ASI_openAccess
 for pull requests, 
-google is greate tool but understanding and initiative is needed to __________
+Google is a useful tool for learning, but initiative and understanding is needed to _________________
